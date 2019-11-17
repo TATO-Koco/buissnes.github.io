@@ -1,2 +1,0 @@
-# buissnes.github.io
-buissnes
